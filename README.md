@@ -1,1 +1,3 @@
-# vsc-genel-bot
+# 50 Starda Paylaşılıcak
+
+# https://www.youtube.com/@WraithsDev
